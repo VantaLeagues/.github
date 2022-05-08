@@ -6,4 +6,4 @@
 
 🍿 Fun facts - We're fully remote, and intend to stay that way.
 
-🧙 Remember, you can do mighty things with the power of [We're hiring](https://angel.co/company/vanta-leagues/jobs)
+🧙 [We're hiring](https://angel.co/company/vanta-leagues/jobs)
